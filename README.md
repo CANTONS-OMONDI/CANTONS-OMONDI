@@ -4,7 +4,7 @@
 - 💞️ I’m looking to collaborate on ...
 - 📫 How to reach me: +254702401930
 - 😄 Pronouns: he/him
-- ⚡ Fun fact: ...
+- ⚡ Fun fact: I love reading Swahili novels
 
 <!---
 CANTONS-OMONDI/CANTONS-OMONDI is a ✨ special ✨ repository because its `README.md` (this file) appears on your GitHub profile.
